@@ -9,7 +9,7 @@ System Mechanic Activation Code: A Step-By-Step Guide
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://getchatsupport.live/
+   :target: https://activation-key.net/
 
 In today's digital environment, how well your computer works may make or break your productivity. If you use your computer a lot or just a little, it has to be quick, safe, and responsive. This is where System Mechanic comes in. It's a strong piece of utility software made by iolo technologies that cleans, speeds up, and protects your system. Users require a System Mechanic activation code to get to all of the functions.
 
